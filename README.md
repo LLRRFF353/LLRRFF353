@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @LLRRFF353
+- 👀 I’m interested in helping others that need help
+- 🌱 I’m currently learning almost everything
+- 💞️ I’m looking to collaborate on anything on a beginer level
+- 📫 How to reach me 25Wooda@cusd15.org
